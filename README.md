@@ -46,6 +46,8 @@ Here are some ideas to get you started:
 
 -![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) im a freaky freakster...heh...if you're a freaky feakster too.....*blushes*
 
+![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) int even if by status is on dnd...i just never change it
+
 <img width="1000" height="100" alt="tumblr_81da5b5ce42cbceafcacc68231f3a183_f4de7208_1280" src="https://github.com/user-attachments/assets/442fd43c-bd66-4015-9985-a4628881de9f" />
 
 <img width="1000" height="100" alt="tumblr_f56f7636222db81e4d6c6b5283cb61d8_d29b38a6_1280" src="https://github.com/user-attachments/assets/e8077df9-3851-46b5-972e-40c3516c7852" />
@@ -55,7 +57,6 @@ Here are some ideas to get you started:
 
 <img width="20" height="20" alt="tumblr_8d832cb0dd4d670135682a18f046f048_b28d4238_75" src="https://github.com/user-attachments/assets/79d1d9b8-e1e8-4921-85d8-204caab1edc1" /> don't int if you're a zoophile. i'll block you. 
 
-<img width="20" height="20" alt="tumblr_8d832cb0dd4d670135682a18f046f048_b28d4238_75" src="https://github.com/user-attachments/assets/16360f70-5073-4f3e-b5d4-4538b36d10d9" /> dni if my status is dnd (it almost never is)
 
 <img width="1000" height="100" alt="tumblr_f56f7636222db81e4d6c6b5283cb61d8_d29b38a6_1280" src="https://github.com/user-attachments/assets/e8077df9-3851-46b5-972e-40c3516c7852" />
 
