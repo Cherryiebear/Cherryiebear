@@ -1,5 +1,5 @@
 
-![&label=🍒 cherries](https://komarev.com/ghpvc/?username=cherryiebear)
+![&label=🍒+cherries](https://komarev.com/ghpvc/?username=cherryiebear)
 
 
 <!--
