@@ -1,5 +1,5 @@
 
-![&label=🍒+cherries](https://komarev.com/ghpvc/?username=cherryiebear&label=💧++++++++++++&abbreviated=true&color=90d5ff&style=flat-square)
+![&label=🍒+cherries](https://komarev.com/ghpvc/?username=cherryiebear&label=💧++++++++++++&abbreviated=true&color=90d5ff)
 
 
 <!--
