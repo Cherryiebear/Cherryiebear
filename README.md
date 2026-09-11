@@ -1,6 +1,6 @@
-<p align="center">
-![Profile Views](https://komarev.com/ghpvc/?username=cherryiebear)
-</p>
+
+![&label=🍒 cherries](https://komarev.com/ghpvc/?username=cherryiebear)&color=DF617F
+
 <!--
 **Cherryagr/Cherryagr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
