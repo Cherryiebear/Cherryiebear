@@ -1,7 +1,6 @@
 
 ![&label=🍒+cherries](https://komarev.com/ghpvc/?username=cherryiebear&label=💧++++++++++++&abbreviated=true&color=90d5ff)
-
-https://cherryiebear.straw.page 
+[strawpage]{https://cherryiebear.straw.page}
 <!--
 **Cherryagr/Cherryagr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
