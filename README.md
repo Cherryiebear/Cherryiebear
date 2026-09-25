@@ -11,7 +11,8 @@
 
  $\color{c5aa9a}{\text{i go with she/her pronouns, but i dont really care about what you call me}}$
 
-  $\color{085659}{\text{i lovelovelove wanderer sm11!1! i am NOT A YUMESHIPPER!@1!! i just like the character ok.. }}$
+  $\color{085659}{\text{i lovelovelove wanderer sm11!1! 
+  i am NOT A YUMESHIPPER!@1!! i just like the character ok.. }}$
 
   $\color{c5aa9a}{\text{dazai kin..dont judge me ok}}$
 
