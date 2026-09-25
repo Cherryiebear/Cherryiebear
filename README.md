@@ -31,9 +31,14 @@ $\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
 
  $\color{c5aa9a}{\text{roblox fandoms dni}}$
 
-════════════════════════════════════
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
-︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+ $\color{c5aa9a}{\text{,}}$
+ 
+ $\color{c5aa9a}{\text{,}}$
+
+ $\color{c5aa9a}{\text{,}}$
+  
+<picture><img width="300" height="300" align="left" alt="024a1170-a2ca-4f8a-a5c2-02af50ca9f59" src="https://github.com/user-attachments/assets/e89306b5-f02f-48f4-8ef5-fc3f9dafd4ec" /></picture>
+
 
 ![f782e8b7409521ece32254dc210cb1bc](https://github.com/user-attachments/assets/ebef0c4e-ef7c-43b0-afe3-26f6a167be9d)
 
