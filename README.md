@@ -23,7 +23,7 @@
 
  $\color{c5aa9a}{\text{  }}$
 
- $\color{c5aa9a}{\text{Basic dni ,, }}$
+ $\color{c5aa9a}{\text{Basic dni crit ,, }}$
 
  $\color{085659}{\text{racist dni.}}$
 
