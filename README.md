@@ -67,6 +67,9 @@ my profile isstill a HUGE wip so 😋😝🫶
 
 scarabedo...🤤🤤🤤
 
+<img width="903" height="708" alt="image" src="https://github.com/user-attachments/assets/98f73ccc-60d6-4dca-a20c-468eac469b47" />
+
+
 
 
 
