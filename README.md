@@ -6,10 +6,28 @@
 
   <picture><img width="300" height="300" align="left" alt="_︎︭ㅤׂㅤ________ㅤ_cαrαׂ_ㅤ______͜͡_୭_͜͡_-removebg-preview - Edited" src="https://github.com/user-attachments/assets/4f18317c-87b2-4e90-beb3-9d4b36b848e2" /></picture> 
  $\color{c5aa9a}{\text{Welcome ! }}$
+ 
+ $\color{085659}{\text{you can call me cherry or anything you wish to call me ! ,, though i prefer cherry }}$
 
- WIPP
-<img width="1000" height="100" alt="tumblr_6c66337346d7c4092fa36eaeeb754c73_946968fc_1280" src="https://github.com/user-attachments/assets/18c9a60e-16b4-46ee-9149-e60c799fb618" />
+ $\color{c5aa9a}{\text{i go with she/her pronouns, but i dont really care about what you call me}}$
 
+  $\color{085659}{\text{i lovelovelove wanderer sm11!1! i am NOT A YUMESHIPPER!@1!! i just like the character ok.. }}$
+
+  $\color{c5aa9a}{\text{dazai kin..dont judge me ok}}$
+
+  $\color{085659}{\text{ENFP-T ,, SO4w3}}$
+
+<picture><img width="666" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
+
+ $\color{c5aa9a}{\text{Basic dni ,, }}$
+
+ $\color{085659}{\text{racist dni.}}$
+
+$\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
+
+ $\color{085659}{\text{D-DDY'S W-RLD DNI}}$
+
+ $\color{c5aa9a}{\text{roblox fandoms dni}}$
 
 ════════════════════════════════════
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
