@@ -1,22 +1,11 @@
+<picture><img width="2000" height="200" alt="65c0d902-b7ba-4caa-96da-19ccfc42c052" src="https://github.com/user-attachments/assets/847f8be3-37fe-41d0-a4d4-02abe36fd989" /></picture>
 
-![&label=🍒+cherries](https://komarev.com/ghpvc/?username=cherryiebear&label=💧++++++++++++&abbreviated=true&color=90d5ff)
 
 
-https://cherryiebear.straw.page <----- unfinished strawpage if you cant tell
-<!--
-**Cherryagr/Cherryagr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> <img src="https://hits.sh/github.com/cherryiebear.svg?style=flat-plastic&label=droplets&color=c5aa9a&labelColor=085659">
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronounhttps://i.pinimg.com/736x/05/2f/ba/052fba5301f2c1ff7af0f2ce930a344a.jpgs: ...
-- ⚡ Fun fact: ...
--->
+  <picture><img width="300" height="300" align="left" alt="_︎︭ㅤׂㅤ________ㅤ_cαrαׂ_ㅤ______͜͡_୭_͜͡_-removebg-preview - Edited" src="https://github.com/user-attachments/assets/4f18317c-87b2-4e90-beb3-9d4b36b848e2" /></picture> 
+ $\color{c5aa9a}{\text{Welcome ! }}$
 <img width="1000" height="100" alt="tumblr_6c66337346d7c4092fa36eaeeb754c73_946968fc_1280" src="https://github.com/user-attachments/assets/18c9a60e-16b4-46ee-9149-e60c799fb618" />
 
 
@@ -67,7 +56,9 @@ my profile isstill a HUGE wip so 😋😝🫶
 
 scarabedo...🤤🤤🤤
 
-<img width="903" height="708" alt="image" src="https://github.com/user-attachments/assets/98f73ccc-60d6-4dca-a20c-468eac469b47" />
+<picture><img width="564" height="442" alt="20f55b61-c2cb-495d-be1f-29470c37782d" src="https://github.com/user-attachments/assets/59de879f-181b-497c-8462-f936bd00a916" /></picture>
+
+
 
 
 
