@@ -41,6 +41,11 @@ $\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
   
 <picture><img width="300" height="300" align="left" alt="024a1170-a2ca-4f8a-a5c2-02af50ca9f59" src="https://github.com/user-attachments/assets/e89306b5-f02f-48f4-8ef5-fc3f9dafd4ec" /></picture>
 
+ $\color{c5aa9a}{\text{, }}$
+
+  $\color{c5aa9a}{\text{, }}$
+
+   
  $\color{c5aa9a}{\text{int!}}$
 
  $\color{085659}{\text{int even if my status is on dnd}}$
