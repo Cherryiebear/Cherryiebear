@@ -11,12 +11,13 @@
 
  $\color{c5aa9a}{\text{i go with she/her pronouns, but i dont really care about what you call me}}$
 
-  $\color{085659}{\text{i lovelovelove wanderer sm11!1! 
-  i am NOT A YUMESHIPPER!@1!! i just like the character ok.. }}$
+ $\color{085659}{\text{i lovelovelove wanderer sm11!1! }}$
+ 
+ $\color{085659}{\text{ i am NOT A YUMESHIPPER!@1!! i just like the character ok..  }}$
+ 
+ $\color{c5aa9a}{\text{dazai kin..dont judge me ok}}$
 
-  $\color{c5aa9a}{\text{dazai kin..dont judge me ok}}$
-
-  $\color{085659}{\text{ENFP-T ,, SO4w3}}$
+ $\color{085659}{\text{ENFP-T ,, SO4w3}}$
 
 <picture><img width="666" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
 
