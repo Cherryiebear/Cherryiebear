@@ -17,7 +17,7 @@
  
  $\color{085659}{\text{dazai kin..dont judge me ok}}$
 
- $\color{085659}{\text{im very much a minor ,, 15 ok}}$
+ $\color{085659}{\text{im very much a minor ,, 15 }}$
 
  $\color{085659}{\text{ENFP-T ,, SO4w3}}$
 
