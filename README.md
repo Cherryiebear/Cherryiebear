@@ -19,7 +19,7 @@
 
  $\color{085659}{\text{ENFP-T ,, SO4w3}}$
 
-<picture><img width="566" height="250" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
+<picture><img width="666" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
 
  $\color{c5aa9a}{\text{, }}$
 
@@ -56,13 +56,25 @@ $\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
  $\color{085659}{\text{solarballs fandom int please o(≧口≦)o}}$
 
   
-
-![f782e8b7409521ece32254dc210cb1bc](https://github.com/user-attachments/assets/ebef0c4e-ef7c-43b0-afe3-26f6a167be9d)
-
-<im width="400" height="300" alt="images" src="https://github.com/user-attachments/assets/d8e5bf05-2943-4806-a7dc-7fd9575c6377"/>
+<picture><img width="666" height="375" align="right" alt="901ef831-41db-4ea7-879a-bc3ad40f80d6" src="https://github.com/user-attachments/assets/b76360d3-b7d9-4f6a-86b1-1dc51fdd23a3" /></picture>
 
 
-<img width="250" height="250" alt="88d0787a7722dd114cc880e68db488cd-removebg-preview" src="https://github.com/user-attachments/assets/5ee6c5a8-a474-423b-bdb7-88801c8b0a65" />
+$\color{c5aa9a}{\text{,}}$
+
+$\color{c5aa9a}{\text{Ships i dislike:}}$
+
+$\color{085659}{\text{Kazuscara (genshin impact)}}$
+
+$\color{c5aa9a}{\text{Tuna (solarballs)}}$
+
+$\color{085659}{\text{,}}$
+
+$\color{085659}{\text{,}}$
+
+$\color{085659}{\text{,}}$
+
+
+<picture><img width="500" height="500" align="left" alt="22d78ea1-3d7e-4855-8a45-bb07034387f6" src="https://github.com/user-attachments/assets/6c01a0ec-0dfb-47d7-b9bd-f2ed45b46b4a" /></picture>
 
 
 
