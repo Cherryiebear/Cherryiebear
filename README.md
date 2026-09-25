@@ -44,9 +44,6 @@ $\color{085659}{\text{zoophiles HEAVY dni}}$
 
  $\color{c5aa9a}{\text{  }}$
 
- $\color{c5aa9a}{\text{  }}$
-
-   
  $\color{c5aa9a}{\text{int!}}$
 
  $\color{085659}{\text{int even if my status is on dnd}}$
