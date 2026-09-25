@@ -107,21 +107,11 @@ $\color{085659}{\text{SCARABEDO ,, ALBESCARA}}$
 $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 
 
-<img width="1000" height="100" alt="tumblr_81da5b5ce42cbceafcacc68231f3a183_f4de7208_1280" src="https://github.com/user-attachments/assets/442fd43c-bd66-4015-9985-a4628881de9f" />
+<picture><img width="300" height="300" align="right" alt="5ad9d576-0749-475a-9934-74b6d442a920" src="https://github.com/user-attachments/assets/42c830c5-f2ba-4bac-96f7-784693747e0e" /></picture>
 
-<img width="1000" height="100" alt="tumblr_f56f7636222db81e4d6c6b5283cb61d8_d29b38a6_1280" src="https://github.com/user-attachments/assets/e8077df9-3851-46b5-972e-40c3516c7852" />
+<picture><img width="300" height="300" align="left" alt="d931210d-61ea-446d-9a74-ef36fccd3ced" src="https://github.com/user-attachments/assets/2c385366-cb71-49e0-a0c5-21bd41208132" /></picture>
+<picture><img width="300" height="300" align="center" alt="7ad41afa-dd6c-43e0-9723-c7189000fce9" src="https://github.com/user-attachments/assets/d2736e8f-27c8-44ae-87e4-28efeead5dbe" /></picture>
 
-<p align="center"> DNI if: </p>
-<img width="20" height="20" alt="tumblr_8d832cb0dd4d670135682a18f046f048_b28d4238_75" src="https://github.com/user-attachments/assets/16360f70-5073-4f3e-b5d4-4538b36d10d9" /> NO STOP! PLEASE DONT NOT INTERACT WITH ME (if im not being lazy heh) IDC IF YOU'RE A HATER OR A WEIRDO OR A TROLLER PLEASE INT YOU DONT KNOW HOW JOBLESS I AM.
-
-<img width="20" height="20" alt="tumblr_8d832cb0dd4d670135682a18f046f048_b28d4238_75" src="https://github.com/user-attachments/assets/79d1d9b8-e1e8-4921-85d8-204caab1edc1" /> don't int if you're a zoophile. i'll block you. 
-
-
-<img width="1000" height="100" alt="tumblr_f56f7636222db81e4d6c6b5283cb61d8_d29b38a6_1280" src="https://github.com/user-attachments/assets/e8077df9-3851-46b5-972e-40c3516c7852" />
-
-my profile isstill a HUGE wip so 😋😝🫶
-
-scarabedo...🤤🤤🤤
 
 <picture><img width="564" height="442" alt="20f55b61-c2cb-495d-be1f-29470c37782d" src="https://github.com/user-attachments/assets/59de879f-181b-497c-8462-f936bd00a916" /></picture>
 
