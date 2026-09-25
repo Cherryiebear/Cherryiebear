@@ -66,6 +66,10 @@ $\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
 
 $\color{c5aa9a}{\text{,}}$
 
+$\color{c5aa9a}{\text{,}}$
+
+$\color{c5aa9a}{\text{,}}$
+
 $\color{c5aa9a}{\text{Ships i dislike:}}$
 
 $\color{085659}{\text{Kazuscara (genshin impact)}}$
