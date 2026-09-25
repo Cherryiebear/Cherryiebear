@@ -42,7 +42,9 @@ $\color{085659}{\text{zoophiles HEAVY dni}}$
 <picture><img width="300" height="300" align="left" alt="024a1170-a2ca-4f8a-a5c2-02af50ca9f59" src="https://github.com/user-attachments/assets/e89306b5-f02f-48f4-8ef5-fc3f9dafd4ec" /></picture>
 
 
-  $\color{c5aa9a}{\text{  }}$
+ $\color{c5aa9a}{\text{  }}$
+
+ $\color{c5aa9a}{\text{  }}$
 
    
  $\color{c5aa9a}{\text{int!}}$
@@ -62,6 +64,9 @@ $\color{085659}{\text{zoophiles HEAVY dni}}$
   
 <picture><img width="600" height="375" align="right" alt="901ef831-41db-4ea7-879a-bc3ad40f80d6" src="https://github.com/user-attachments/assets/b76360d3-b7d9-4f6a-86b1-1dc51fdd23a3" /></picture>
 
+$\color{c5aa9a}{\text{  }}$
+
+$\color{c5aa9a}{\text{  }}$
 
 $\color{c5aa9a}{\text{  }}$
 
