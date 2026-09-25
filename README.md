@@ -19,7 +19,9 @@
 
  $\color{085659}{\text{ENFP-T ,, SO4w3}}$
 
-<picture><img width="666" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
+<picture><img width="566" height="250" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
+
+ $\color{c5aa9a}{\text{, }}$
 
  $\color{c5aa9a}{\text{Basic dni ,, }}$
 
@@ -39,6 +41,21 @@ $\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
   
 <picture><img width="300" height="300" align="left" alt="024a1170-a2ca-4f8a-a5c2-02af50ca9f59" src="https://github.com/user-attachments/assets/e89306b5-f02f-48f4-8ef5-fc3f9dafd4ec" /></picture>
 
+ $\color{c5aa9a}{\text{int!}}$
+
+ $\color{085659}{\text{int even if my status is on dnd}}$
+
+ $\color{c5aa9a}{\text{if you see any pony of mine thats}}$
+
+ $\color{c5aa9a}{\text{from your fandom please dont hesitate to int!}}$
+
+ $\color{085659}{\text{shippers int!! i would love to hear about who you ship}}$
+
+ $\color{c5aa9a}{\text{C+H whenever,, unless somebody's already sitting with me}}$
+
+ $\color{085659}{\text{solarballs fandom int please o(≧口≦)o}}$
+
+  
 
 ![f782e8b7409521ece32254dc210cb1bc](https://github.com/user-attachments/assets/ebef0c4e-ef7c-43b0-afe3-26f6a167be9d)
 
