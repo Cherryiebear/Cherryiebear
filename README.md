@@ -62,7 +62,6 @@ $\color{c5aa9a}{\text{zoophiles HEAVY dni}}$
   
 <picture><img width="600" height="375" align="right" alt="901ef831-41db-4ea7-879a-bc3ad40f80d6" src="https://github.com/user-attachments/assets/b76360d3-b7d9-4f6a-86b1-1dc51fdd23a3" /></picture>
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 $\color{c5aa9a}{\text{,}}$
 
@@ -82,13 +81,9 @@ $\color{085659}{\text{,}}$
 
 $\color{085659}{\text{,}}$
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 
 <picture><img width="500" height="500" align="left" alt="22d78ea1-3d7e-4855-8a45-bb07034387f6" src="https://github.com/user-attachments/assets/6c01a0ec-0dfb-47d7-b9bd-f2ed45b46b4a" /></picture>
-
-
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 $\color{085659}{\text{ships that i LOVE:}}$
 
@@ -101,8 +96,6 @@ $\color{c5aa9a}{\text{SHADOWVANILLA}}$
 $\color{085659}{\text{SCARABEDO ,, ALBESCARA}}$
 
 $\color{c5aa9a}{\text{ME X VENTI (joke ok not a yumeship) }}$
-
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 
 <img width="1000" height="100" alt="tumblr_81da5b5ce42cbceafcacc68231f3a183_f4de7208_1280" src="https://github.com/user-attachments/assets/442fd43c-bd66-4015-9985-a4628881de9f" />
