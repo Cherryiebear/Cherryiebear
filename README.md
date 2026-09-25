@@ -84,6 +84,11 @@ $\color{085659}{\text{,}}$
 
 
 <picture><img width="500" height="500" align="left" alt="22d78ea1-3d7e-4855-8a45-bb07034387f6" src="https://github.com/user-attachments/assets/6c01a0ec-0dfb-47d7-b9bd-f2ed45b46b4a" /></picture>
+$\color{085659}{\text{,}}$
+
+$\color{085659}{\text{,}}$
+
+$\color{085659}{\text{,}}$
 
 $\color{085659}{\text{ships that i LOVE:}}$
 
