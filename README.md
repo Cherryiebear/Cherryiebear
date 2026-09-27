@@ -93,8 +93,6 @@ $\color{c5aa9a}{\text{  }}$
 
 $\color{c5aa9a}{\text{  }}$
 
-$\color{c5aa9a}{\text{  }}$
-
 <table>
   <tr>
     <th>
