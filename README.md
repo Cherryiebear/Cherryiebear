@@ -5,21 +5,28 @@
 <p align="center"> <img src="https://hits.sh/github.com/cherryiebear.svg?style=flat-plastic&label=droplets&color=c5aa9a&labelColor=085659">
 
   <picture><img width="300" height="300" align="left" alt="_︎︭ㅤׂㅤ________ㅤ_cαrαׂ_ㅤ______͜͡_୭_͜͡_-removebg-preview - Edited" src="https://github.com/user-attachments/assets/4f18317c-87b2-4e90-beb3-9d4b36b848e2" /></picture> 
+
+<table>
+  <tr>
+    <th>
  $\color{c5aa9a}{\text{Welcome ! }}$
  
- $\color{085659}{\text{you can call me cherry or anything you wish to call me ! ,, though i prefer cherry }}$
+ $\color{085659}{\text{you can call me cherry or anything you wish to call me ! ,, though i prefer cherry }}$ <br>
 
- $\color{085659}{\text{i go with she/her pronouns, but i dont really care about what you call me}}$
+ $\color{085659}{\text{i go with she/her pronouns, but i dont really care about what you call me}}$ <br>
 
- $\color{085659}{\text{i lovelovelove wanderer sm11!1! }}$
+ $\color{085659}{\text{i lovelovelove wanderer sm11!1! }}$ <br>
  
- $\color{085659}{\text{ i am NOT A YUMESHIPPER!@1!! i just like the character ok..  }}$
+ $\color{085659}{\text{ i am NOT A YUMESHIPPER!@1!! i just like the character ok..  }}$ <br>
  
- $\color{085659}{\text{dazai kin..dont judge me ok}}$
+ $\color{085659}{\text{dazai kin..dont judge me ok}}$ <br>
 
- $\color{085659}{\text{im very much a minor ,, 15 }}$
+ $\color{085659}{\text{im very much a minor ,, 15 }}$ <br>
 
- $\color{085659}{\text{ENFP-T ,, SO4w3}}$
+ $\color{085659}{\text{ENFP-T ,, SO4w3}}$ <br>
+   </th>
+  </tr>
+ </table>
 
 <picture><img width="600" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
 
