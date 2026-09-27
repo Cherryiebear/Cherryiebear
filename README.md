@@ -152,8 +152,8 @@ $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 
 <p align="center">
   𝄞⨾𓍢ִ໋
-  <a href="https://cherry.atabook.org/">Atabook</a> ·
-  <a href="https://en.pronouns.page/@cherryiebear">Pronouns Page</a> ·
+  <a href="https://cherry.atabook.org/">Atabook</a> ಄
+  <a href="https://en.pronouns.page/@cherryiebear">Pronouns Page</a> ಄
   <a href="https://cherryiebear.straw.page">Strawpage</a>
  ᝰ.ᐟ
 </p>
