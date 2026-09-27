@@ -28,7 +28,7 @@
   </tr>
  </table>
 
-<picture><img width="500" height="500" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
+<picture><img width="600" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
 
 $\color{c5aa9a}{\text{  }}$
 
@@ -55,7 +55,7 @@ $\color{085659}{\text{zoophiles HEAVY dni}}$ <br>
  $\color{085659}{\text{   }}$
 
   
-<picture><img width="300" height="300" align="left" alt="024a1170-a2ca-4f8a-a5c2-02af50ca9f59" src="https://github.com/user-attachments/assets/e89306b5-f02f-48f4-8ef5-fc3f9dafd4ec" /></picture>
+<picture><img width="500" height="500" align="left" alt="024a1170-a2ca-4f8a-a5c2-02af50ca9f59" src="https://github.com/user-attachments/assets/e89306b5-f02f-48f4-8ef5-fc3f9dafd4ec" /></picture>
 
 
  $\color{c5aa9a}{\text{  }}$
