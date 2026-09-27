@@ -85,7 +85,6 @@ $\color{085659}{\text{zoophiles HEAVY dni}}$ <br>
   
 <picture><img width="600" height="375" align="right" alt="901ef831-41db-4ea7-879a-bc3ad40f80d6" src="https://github.com/user-attachments/assets/b76360d3-b7d9-4f6a-86b1-1dc51fdd23a3" /></picture>
 
-$\color{c5aa9a}{\text{  }}$
 
 $\color{c5aa9a}{\text{  }}$
 
