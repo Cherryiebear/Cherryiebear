@@ -141,6 +141,14 @@ $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 </tr>
 </table>
 
+<p align="center">
+  𝄞⨾𓍢ִ໋
+  <a href="https://cherry.atabook.org/">Atabook</a> ·
+  <a href="https://en.pronouns.page/@cherryiebear">Pronouns Page</a> ·
+  <a href="https://cherryiebear.straw.page">Strawpage</a>
+ ᝰ.ᐟ
+</p>
+
 <picture><img width="300" height="300" align="right" alt="5ad9d576-0749-475a-9934-74b6d442a920" src="https://github.com/user-attachments/assets/42c830c5-f2ba-4bac-96f7-784693747e0e" /></picture>
 
 <picture><img width="300" height="300" align="left" alt="d931210d-61ea-446d-9a74-ef36fccd3ced" src="https://github.com/user-attachments/assets/2c385366-cb71-49e0-a0c5-21bd41208132" /></picture>
