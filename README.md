@@ -141,13 +141,6 @@ $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 </tr>
 </table>
 
-<p align="center">
-  𝄞⨾𓍢ִ໋
-  <a href="https://cherry.atabook.org/">Atabook</a> ·
-  <a href="https://en.pronouns.page/@cherryiebear">Pronouns Page</a> ·
-  <a href="https://cherryiebear.straw.page">Strawpage</a>
- ᝰ.ᐟ
-</p>
 
 <picture><img width="300" height="300" align="right" alt="5ad9d576-0749-475a-9934-74b6d442a920" src="https://github.com/user-attachments/assets/42c830c5-f2ba-4bac-96f7-784693747e0e" /></picture>
 
@@ -157,6 +150,13 @@ $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 
 <picture><img width="564" height="442" alt="20f55b61-c2cb-495d-be1f-29470c37782d" src="https://github.com/user-attachments/assets/59de879f-181b-497c-8462-f936bd00a916" /></picture>
 
+<p align="center">
+  𝄞⨾𓍢ִ໋
+  <a href="https://cherry.atabook.org/">Atabook</a> ·
+  <a href="https://en.pronouns.page/@cherryiebear">Pronouns Page</a> ·
+  <a href="https://cherryiebear.straw.page">Strawpage</a>
+ ᝰ.ᐟ
+</p>
 
 
 
