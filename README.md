@@ -29,7 +29,9 @@
  </table>
 
 <picture><img width="600" height="375" align="right" alt="e5e0f2fa-e9f8-4aca-b70e-d8d489a49b86" src="https://github.com/user-attachments/assets/58a69b47-e886-40d6-9a33-041a6fd1504a" /></picture>
-
+<table>
+<tr>
+  <th>
  $\color{c5aa9a}{\text{  }}$
 
  $\color{c5aa9a}{\text{Basic dni crit ,, }}$
@@ -41,6 +43,9 @@ $\color{085659}{\text{zoophiles HEAVY dni}}$
  $\color{085659}{\text{D-DDY'S W-RLD DNI}}$
 
  $\color{085659}{\text{roblox fandoms dni}}$
+ </th>
+ </tr>
+ </table>
 
  $\color{085659}{\text{   }}$
  
