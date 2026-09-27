@@ -120,6 +120,11 @@ $\color{c5aa9a}{\text{   }}$
 
 $\color{085659}{\text{   }}$
 
+<table>
+  <tr>
+    <th>
+      
+
 $\color{c5aa9a}{\text{ships that i LOVE:}}$
 
 $\color{085659}{\text{MARTH SOLARBALLS}}$
@@ -132,6 +137,9 @@ $\color{085659}{\text{SCARABEDO ,, ALBESCARA}}$
 
 $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 
+</th>
+</tr>
+</table>
 
 <picture><img width="300" height="300" align="right" alt="5ad9d576-0749-475a-9934-74b6d442a920" src="https://github.com/user-attachments/assets/42c830c5-f2ba-4bac-96f7-784693747e0e" /></picture>
 
