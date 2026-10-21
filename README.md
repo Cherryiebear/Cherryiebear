@@ -150,7 +150,7 @@ $\color{085659}{\text{ME X VENTI (joke ok not a yumeship) }}$
 
 
 <picture><img width="564" height="442" alt="20f55b61-c2cb-495d-be1f-29470c37782d" src="https://github.com/user-attachments/assets/59de879f-181b-497c-8462-f936bd00a916" /></picture>
-<palign="center">
+<p align="center">
 <a href="https://www.detectiveboard.io/board/a0d8d3eb-43e6-438f-a336-a3499568a6ef">Detective board</a>
 </p>
 
